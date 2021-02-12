@@ -1,1 +1,2 @@
-Rolive Coming Soon...
+![banner](https://cdn.discordapp.com/attachments/809886702344339507/809886717628121098/68747470733a2f2f692e6779617a6f2e636f6d2f6431653237.png)
+![description](https://i.gyazo.com/0926bf0ae23fb20f4449b6d5445fc4d8.png)
